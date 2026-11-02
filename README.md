@@ -10,3 +10,13 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31nevld7gnv2xxppqld4wqu4bfai&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ee8181&bar_color_cover=false">
   </a>
 </p>
+
+
+
+
+<p align="center">
+  <img width="530"  src="https://github.com/user-attachments/assets/07be6735-f30d-4c36-8350-78b8468cab22">
+</p>
+
+<p align="center">
+  yo thank you for nominating me <img width="35" alt="512" src="https://github.com/user-attachments/assets/38adf313-98d4-4f4f-a304-c4347ecb368c" />
