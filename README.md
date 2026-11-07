@@ -1,5 +1,8 @@
 
 
+<details> C+H always! it is always encouraged. Do not copy my skins, inspirations is fine but this only applies on my cosplays. I like following people + I don't check who i follow so if i follow someone problematic in the community, please inform me in my atabook. </details>
+  
+
 <p align="center">
   <img width="510"  src="https://github.com/user-attachments/assets/41836de2-99a7-432c-a35e-d13744dda8b3">
 </p>
@@ -20,3 +23,6 @@
 
 <p align="center">
   yo thank you for nominating me <img width="35" alt="512" src="https://github.com/user-attachments/assets/38adf313-98d4-4f4f-a304-c4347ecb368c" />
+
+
+
